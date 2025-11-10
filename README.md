@@ -1,5 +1,7 @@
 **Quantitative Research | Goldman Sachs | IIT Madras '22**
 
+> _“Turning ideas into impact — one model, one commit, one conversation at a time.”_
+
 📍 Bengaluru, India  
 🔗 [LinkedIn](https://www.linkedin.com/in/seenu-k)
 
